@@ -1,4 +1,4 @@
-## hi
+## lalala! ^_^
 
 haiia my name is wool but you can call me rin wemmbu circuit null or any other silly nicknames!!
 
