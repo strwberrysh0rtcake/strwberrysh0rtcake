@@ -1,4 +1,7 @@
-## lalala! ^_^
+![17564728901901237077378478980645](https://github.com/user-attachments/assets/ee217d9d-6042-4d30-99dd-f7b830d5189d)
+
+
+## lalala! ^_^ 
 
 haiia my name is wool but you can call me rin wemmbu circuit null or any other silly nicknames!!
 
@@ -14,3 +17,5 @@ i go by any prns , but do not call me a girl js bc i have long hair???
 int freely whenever you want, iwecare when im upset!
 
 i get anxious around big crowds, dont push me in big crowds!
+
+ok that's all bye byey!!.!
