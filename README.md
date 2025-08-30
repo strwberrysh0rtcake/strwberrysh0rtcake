@@ -1,5 +1,5 @@
 ![17564728901901237077378478980645](https://github.com/user-attachments/assets/ee217d9d-6042-4d30-99dd-f7b830d5189d)
-
+secretly ouriel irl shh🤫🤫
 
 ## lalala! ^_^ 
 
@@ -18,4 +18,23 @@ int freely whenever you want, iwecare when im upset!
 
 i get anxious around big crowds, dont push me in big crowds!
 
-ok that's all bye byey!!.!
+## fandomsd
+
+lifesteal , grocery gang , days union , holoville , tmc , boisvert , ^_^ , insomnia , bloodmoney , ocean terror, dandys world , forsaken , regretevator , enigma , mugen , biast , 99nitf , mlp and alot more .
+
+## vwry important things 
+
+pls pls iwec iwcare when im upset even though i dont have iwec or iwcare in my name ok , thank you!
+
+i have memory issues , could forget people and things at any times im so sorry if i forget you!
+
+i have crowd sensitivity and hypersensitivity please iwvec thank you so much if you understand !
+
+## other things
+
+if you are a proshipper / darkshipper , pdf file , predator please do not interact if you do i block freely! /srs
+
+if you annoy me i block freely !
+
+##goodbye have a good night/day !
+   lalala
