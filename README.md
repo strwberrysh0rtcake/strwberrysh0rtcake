@@ -36,5 +36,5 @@ if you are a proshipper / darkshipper , pdf file , predator please do not intera
 
 if you annoy me i block freely !
 
-##goodbye have a good night/day !
+## goodbye have a good night/day !
    lalala
