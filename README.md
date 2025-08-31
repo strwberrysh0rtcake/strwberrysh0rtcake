@@ -21,14 +21,13 @@ i get anxious around big crowds, dont push me in big crowds!
 ## fandomsd
 
 ![17566200680031520816764883421152](https://github.com/user-attachments/assets/b2e55f11-7141-4659-88ae-57c3f882cc6c)
-wemmbu
 
 lifesteal , grocery gang , days union , holoville , tmc , boisvert , ^_^ , insomnia , bloodmoney , ocean terror, dandys world , forsaken , regretevator , enigma , mugen , biast , 99nitf , mlp , wthv , lhg , orison , Jim's Computer, Paul's journey , ch , cb , trud , dod and tons of other fandoms!
 
 ## vwry important things 
 
 ![17566201615494812646934062530269](https://github.com/user-attachments/assets/aa2899e4-e119-461b-82f1-f9faf49d38c2)
-
+wemmbu
 
 pls pls iwec iwcare when im upset even though i dont have iwec or iwcare in my name ok , thank you!
 
