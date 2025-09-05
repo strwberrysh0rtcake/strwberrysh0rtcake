@@ -1,11 +1,12 @@
-![17568227567555049785771772852950](https://github.com/user-attachments/assets/5b9006be-0d7a-4271-81e7-9f8581034f97)
+![17570898744375544468283431711775](https://github.com/user-attachments/assets/8f1cb247-3289-4e48-8e07-6e51154c4df7)
+
 
 
 ## hey
 
 ## 
 
-## any pronouns, genderfluid 
+## any pronouns, 
 ##
 ## bisexual, poly.
 
