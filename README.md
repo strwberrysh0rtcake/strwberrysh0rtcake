@@ -10,7 +10,7 @@
 ##
 ## bisexual, poly.
 
- call me wool, rin, wemmbu, null, tippy, circuit, angered and many other silly nicknames!
+ call me wool, rin, wemmbu, null, tippy, circuit, angered and many other silly nicknames! (i sumtimez like to get called by my very close friends my real name which is xander!)
 
  ## I have scizophrenia, hypersensitivity, dyslexia, memory issues, CS and sensory processing disorder.
 
