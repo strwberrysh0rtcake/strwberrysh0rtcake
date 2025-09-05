@@ -9,16 +9,8 @@
 ##
 ## bisexual, poly.
 
-## call me wool, rin, wemmbu, null, tippy, circuit, angered, 
+ call me wool, rin, wemmbu, null, tippy, circuit, angered and many other silly nicknames!
 
+ ## I have scizophrenia, hypersensitivity, dyslexia, memory issues, CS and sensory processing disorder.
 
-# READ BYI/DNI !!
-I have scizophrenia, memory issues and hypersensitivity. 
-## interact with extreme care and caution while im upset, even when im not
-
-IF YOU. ARE A proship/darkship/profic, pdf file weirdo. just. do not interact. it's obvious.
-
-## I do not support any of the grocery gang members/other roblox myths, especially tlppyship, alonetraveler or any other myths.
-
-i like the characters but i don't support the people behind them.
-##
+ C+h freely cover me if you want and you can also cover me, but first ask unless you're close/oomf
