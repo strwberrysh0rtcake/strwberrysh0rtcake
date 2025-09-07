@@ -1,17 +1,3 @@
-![17570898744375544468283431711775](https://github.com/user-attachments/assets/8f1cb247-3289-4e48-8e07-6e51154c4df7)
+![17572503923091261218070430943972](https://github.com/user-attachments/assets/9ffb7d9c-3c75-4e1b-8fcb-a5b1c2e2a117)
 
-
-
-## hey
-
-## 
-
-## any pronouns, 
-##
-## bisexual, poly.
-
- call me wool, rin, wemmbu, null, tippy, circuit, angered and many other silly nicknames! (i sumtimez like to get called by my very close friends my real name which is xander!)
-
- ## I have scizophrenia, hypersensitivity, dyslexia, memory issues, CS and sensory processing disorder.
-
- C+h freely cover me if you want and you can also cover me, but first ask unless you're close/oomf
+haii im wool you can call me rin , wemmbu , tippyship , angeredfish , null and more silly nicknames !!
