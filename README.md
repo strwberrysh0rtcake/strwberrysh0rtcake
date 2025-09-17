@@ -1,13 +1,31 @@
-![17572503923091261218070430943972](https://github.com/user-attachments/assets/9ffb7d9c-3c75-4e1b-8fcb-a5b1c2e2a117)
+ ִֶָ
+ #         . ..𓂃 ࣪ ִֶָ🪽་༘࿐ 
+\  ⏔ ⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔ ⏔  /
+##
+## a town of sunken memories...
 
-haii im wool you can call me rin , wemmbu , tippyship , angeredfish , null and more silly nicknames !!
+## ☆ ▪︎ HYELOA . . !
 
-iwec , iwcare.. im sensitive, sometimez bad tempered.
+## • NAMES
+• I have alot names and nicknames 4 u 2 use but i prefer being called rin or fisher. 
 
-dni profic/proship, weirdos ,, pdf files/predators... just no. basic dni,, i block freely,
+• Call me fisher , null , wool , rin , six , koi , greatful , horrid , angeredfish , Black Storm Clown , wemmbu , skittles , candy , soapy , cal , xan and guest .
+##
+## • Prns 
+• I am genderfluid , biologically a boy , i use any prns , and other prns like xe/xem , etc.
+##
+## Pleas read b4 u int
+• i got memory issues sorry if i forget you. 
 
-i have ocd , scizophrenia , hypersensitivity , CS, memory issues and sensory processing disorder. basic iwec , iwcare and yeah!
+• i have hypersensitivity if you dm please iwec when talking to me , interact with alot of care when im upset.
 
-c+h freely,, you can also cver me if u want 2 but ask first unless ur a close friend!
+• i also have scizophrenia, crowd sensitivity and sensory processing disorder. 
 
-ALWAYS INT I BEG,, yes i am kinda shy, sometimes awkward when talking but please int!
+• i get attached to my friends easily and make unfunny jokes with my closest/fav ones , if u aren't comfortable with it please whisp or say it to me , idm !
+
+• i write alot of incorrect words
+##
+## dnis
+• dni pedophiles , profictions , dark/proships , weirdos , predators , irl gore lovers , and especially people who ship others JUST DONT, do not interact please. if you do, i block freely ^^ , if u dont i appreciate it!
+##
+## Dis iz all bai bai!! ^^
