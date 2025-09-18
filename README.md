@@ -31,4 +31,7 @@
 ## dnis
 • dni pedophiles , profictions , dark/proships , weirdos , predators , irl gore lovers , and especially people who ship others JUST DONT, do not interact please. if you do, i block freely ^^ , if u dont i appreciate it!
 ##
+## other
+• please do not copy my skins or inspo , even slight inspo. For drawing , you can take inspo idm! but js dont copy. literally. 
+##
 ## Dis iz all bai bai!! ^^
