@@ -26,6 +26,8 @@
 
 • i get attached to my friends easily and make unfunny jokes with my closest/fav ones , if u aren't comfortable with it please whisp or say it to me , idm !
 
+• i also flirt with some of my friends , if u arent comf with it please tell me!
+
 • i write alot of incorrect words
 ##
 ## dnis
@@ -33,5 +35,7 @@
 ##
 ## other
 • please do not copy my skins or inspo , even slight inspo. For drawing , you can take inspo idm! but js dont copy. literally. 
+##
+# PLS C+H , i love getting covered entirely when im cuddling with friends i also love cuddle piles!^^
 ##
 ## Dis iz all bai bai!! ^^
