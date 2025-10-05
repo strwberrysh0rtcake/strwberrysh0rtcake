@@ -17,3 +17,5 @@ any prns/genderfluid , mostly he/they
   * it's basic dni criteria what do you expect
   * i have a typing quirk and make mistakes
     (4 example: i hav a typing quirk and make mistakez)
+
+  * rentry : https://rentry.co/deityfish
