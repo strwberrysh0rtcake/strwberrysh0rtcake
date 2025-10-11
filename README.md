@@ -1,4 +1,5 @@
-<img width="420" height="594" alt="17596591407822626942150563659083" src="https://github.com/user-attachments/assets/88cfb4ca-53b1-4c82-a058-1eb766abba06" />
+<img width="420" height="594" alt="1760182220534290840251039707036" src="https://github.com/user-attachments/assets/b06438be-3d40-4fd8-b0e9-09975b065a35" />
+
 
 any prns/genderfluid , mostly he/they
   * if u find mi funny plspls let's be oomfs! ^^                 
