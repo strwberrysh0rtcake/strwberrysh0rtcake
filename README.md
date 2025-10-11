@@ -1,5 +1,6 @@
 <img width="420" height="594" alt="1760182220534290840251039707036" src="https://github.com/user-attachments/assets/b06438be-3d40-4fd8-b0e9-09975b065a35" />
 
+## HEYYA!! Sorephex / wool here!
 
 any prns/genderfluid , mostly he/they
   * if u find mi funny plspls let's be oomfs! ^^                 
