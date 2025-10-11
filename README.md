@@ -12,8 +12,10 @@ any prns/genderfluid , mostly he/they
 
 <img width="500" height="280" alt="17596605568877526128535311074773" src="https://github.com/user-attachments/assets/a0e65045-76d3-4576-8659-090b25e211f1" />
 
-## read before yu int/dni
- 
+ <img width="344" height="500" alt="17601820808481454392994659266576" src="https://github.com/user-attachments/assets/eb9010f9-3226-4dd0-9f1e-87d8c56e1f10" />
+
+## read before yu int
+  
   * it's basic dni criteria what do you expect
   * i have a typing quirk and make mistakes
     (4 example: i hav a typing quirk and make mistakez)
