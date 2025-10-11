@@ -3,8 +3,7 @@
 any prns/genderfluid , mostly he/they
   * if u find mi funny plspls let's be oomfs! ^^                 
   * bisexual , poly,, prb pan,, heh.!
- 
-<img width="500" height="280" alt="17596605568877526128535311074773" src="https://github.com/user-attachments/assets/711d0120-2aa8-4afb-883f-394843af269e" />
+ ------
 
   * call me wool , rin , joey , fisher , andre ,, sawyer ,, and boogie.! (mostly sawyer)
   * other nicknames are js my kins they're prb on my 2nd rentry lol.
@@ -19,3 +18,6 @@ any prns/genderfluid , mostly he/they
     (4 example: i hav a typing quirk and make mistakez)
 
   * rentry : https://rentry.co/deityfish
+
+
+<img width="500" height="500" alt="17601817553099007289150691940492" src="https://github.com/user-attachments/assets/81a8a690-d9a0-4a5b-89e5-a7dc5d0d101a" />
