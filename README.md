@@ -4,6 +4,7 @@ any prns/genderfluid , mostly he/they
   * if u find mi funny plspls let's be oomfs! ^^                 
   * bisexual , poly,, prb pan,, heh.!
  ------
+<img width="496" height="503" alt="17601820199381864847796445646414" src="https://github.com/user-attachments/assets/84733aad-9817-4f89-86ba-1bdd0d91d00f" />
 
   * call me wool , rin , joey , fisher , andre ,, sawyer ,, and boogie.! (mostly sawyer)
   * other nicknames are js my kins they're prb on my 2nd rentry lol.
