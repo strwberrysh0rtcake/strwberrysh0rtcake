@@ -1,7 +1,7 @@
 <img width="420" height="594" alt="17596591407822626942150563659083" src="https://github.com/user-attachments/assets/88cfb4ca-53b1-4c82-a058-1eb766abba06" />
 
 any prns/genderfluid , mostly he/they
-  * im indeed flirty with friends                    
+  * if u find mi funny plspls let's be oomfs! ^^                 
   * bisexual , poly,, prb pan,, heh.!
  
 <img width="500" height="280" alt="17596605568877526128535311074773" src="https://github.com/user-attachments/assets/711d0120-2aa8-4afb-883f-394843af269e" />
