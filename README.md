@@ -6,4 +6,14 @@ i am a teen soo 13+ can interact !
 
 im genderfluid or flux he / any prns im pan and bi yes. and yeah i am taken!
 
-c+h freely and int anytime idm im also awkward when it's about talking or meeting new people pls pls iwec i have hsp ok! and yes one of my alters is a narcissist 
+c+h freely and int anytime idm im also awkward when it's about talking or meeting new people pls pls iwec i have hsp ok! and baibia
+
+main rentry: .co /BarryWheatlySherrington 
+
+other rentrey: .co /deityfish 
+
+otehr links can be on my rentry and main one. 
+
+discord: computer.malware
+
+dms arent open and reqs aswell i dont do rentries. i make graphics and shi
