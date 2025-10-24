@@ -16,4 +16,4 @@ otehr links can be on my rentry and main one.
 
 discord: computer.malware
 
-dms arent open and reqs aswell i dont do rentries. i make graphics and shi
+dms arent open and reqs aswell i dont do rentries. i make graphics and shit
