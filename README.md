@@ -4,7 +4,7 @@ my name is rin or wool you can also call me strider , barry , dave , andre , saw
 
 i am a teen soo 13+ can interact !
 
-im genderfluid or flux he / any prns im pan and bi yes. and yeah i am taken!
+i have nullified pronouns ok..
 
 c+h freely and int anytime idm im also awkward when it's about talking or meeting new people pls pls iwec i have hsp ok! and baibia
 
