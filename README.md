@@ -11,11 +11,14 @@ note: <img width="80" height="79" alt="17613943149571833700083326956876" src="ht
 
 ## hi
 
-![17613947054906585331840009171202](https://github.com/user-attachments/assets/4067ccb2-c9e4-476d-9a2d-dc50926304ee) i have nullified prns and im bisexual! ^^
+![17613947054906585331840009171202](https://github.com/user-attachments/assets/4067ccb2-c9e4-476d-9a2d-dc50926304ee) i have nullified prns and im bisexual!
+
+call me andre or wool! <img width="20" height="19" alt="17613957290605053927478472165068" src="https://github.com/user-attachments/assets/e92d50d0-60c1-48e2-8166-008239308382" />
+
+ * dni <img width="80" height="79" alt="1761395985595116152324487581583" src="https://github.com/user-attachments/assets/19f64fe1-4031-4e4d-865d-b1ee02a14a14" /> list :: lolishota, shotacon, proship. darkship, profiction darkfic..
 
 
 
 
 
-
-
+## bye
