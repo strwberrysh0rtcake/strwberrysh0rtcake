@@ -19,9 +19,10 @@ call me andre or wool! <img width="20" height="19" alt="176139572906050539274784
 
  * dni <img width="80" height="79" alt="1761395985595116152324487581583" src="https://github.com/user-attachments/assets/19f64fe1-4031-4e4d-865d-b1ee02a14a14" /> list :: lolishota, shotacon, proship. darkship, profiction darkfic..
 
+c+h freely idm!
 <img width="90" height="89" alt="17613962345894687240014949141638" src="https://github.com/user-attachments/assets/ad6aa948-11b4-40cd-8fa1-33883680d31b" />
 
-c+h freely idm! cover me if u want and you can fully cover only if u want idm it:)
+ cover me if u want and you can fully cover only if u want idm it:)
 
 
 ## bye
