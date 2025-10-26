@@ -7,3 +7,6 @@ pixels ill use: ![1761463196571957150353323624096](https://github.com/user-attac
 
 stamps: ![17614635315813317198965259855778](https://github.com/user-attachments/assets/d7c12dec-b312-42b7-b0be-c50f6ee73386)
 
+buttons: ![17614637119806064458367551127616](https://github.com/user-attachments/assets/c4b0dfb4-7054-487f-af01-0aa7bcfda098)
+
+
