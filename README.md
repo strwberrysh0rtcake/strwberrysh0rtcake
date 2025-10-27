@@ -25,6 +25,9 @@ first,, im scizophrenic i have hypersensitivity and i lack empathy. I'm a system
  ![17614634313956767452044647135725](https://github.com/user-attachments/assets/6e9bcd6b-3aea-4deb-b2e9-290b50f643f5)
 # about mii ![17614637119806064458367551127616](https://github.com/user-attachments/assets/c4b0dfb4-7054-487f-af01-0aa7bcfda098)
 
+<img width="500" height="500" alt="17615733071843418256548886669753" src="https://github.com/user-attachments/assets/b1f89583-9c1c-4239-8a3a-56f2c5576590" />
+
+
 hi my name is andre or wool , psspsp you can call me by my kins and the nicknames im gonna tell u rn! ^^ // Nicknames:: fisher , sawyer, rin , orb , ivan , barry , strider , dave , koi and six !![17614630296205928784762532206748](https://github.com/user-attachments/assets/3b3ddf7e-a681-4324-954a-4188e7c58b2d)
 
 im gendervoid/fluid ,, he/any or either no pronouns . im aroace and bisexual and yes a have partner!!![17614632906757183733480047890964](https://github.com/user-attachments/assets/d7e763c0-5161-46c9-b464-6a1dec1b6f35)
