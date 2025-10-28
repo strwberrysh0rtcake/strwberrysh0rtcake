@@ -7,6 +7,7 @@ first,, im scizophrenic i have hypersensitivity and i lack empathy. I'm a system
 
  ## RBYDNI. 
 
+ corn addicts
  transphobes/homophobes 
  r@cist people
  drama queens
